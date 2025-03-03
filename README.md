@@ -1,2 +1,3 @@
 # Everlasting-Matches
 Everlasting Matches: A trusted marriage bureau helping individuals find their perfect life partner. Verified profiles, personalized matchmaking, and 24/7 support. Join thousands of successful matches today!
+we connect compatible individuals based on shared values, interests, and lifestyles. Our platform offers verified profiles, expert guidance, and a seamless experience to make your journey toward lifelong happiness as smooth as possible. Whether you're looking for a rishta in Karachi, Lahore, Islamabad, or beyond, Everlasting Matches is here to guide you every step of the way.
